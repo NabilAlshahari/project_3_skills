@@ -1,1 +1,1 @@
-# https://nabilalshahari.github.io/skills/
+# https://nabilalshahari.github.io/project_3_skills/
